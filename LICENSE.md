@@ -1,4 +1,4 @@
-
+automatic Brushes for Inkscape for macOS - layer styles and AI upscaling is the best Inkscape for macOS brush, featuring layer styles and AI upscaling. Safe, efficient, and
 
 
 
